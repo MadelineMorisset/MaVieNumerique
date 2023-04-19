@@ -18,8 +18,8 @@ Cheesecake au fromage blanc inratable
        Placez au réfrigérateur. Essuyez sommairement la cuve.
 
     ÉTAPE 3
-        Battez la faisselle jusqu'à ce qu'elle soit lisse pendant 1 min / vit. 5 / 0 °C, puis ajoutez le sucre, la farine, 
-        la crème, l’extrait de vanille et les œufs un par un.
+        Battez la faisselle jusqu'à ce qu'elle soit lisse pendant 1 min / vit. 5 / 0 °C, puis ajoutez le sucre, 
+        la farine, la crème, l’extrait de vanille et les œufs un par un.
 
     ÉTAPE 4
         Versez cette préparation dans le moule, sur la base biscuitée. 
