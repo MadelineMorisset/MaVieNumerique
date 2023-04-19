@@ -5,3 +5,4 @@
   - thon
   - oeufs
   - pommes "golden"
+  - riz
